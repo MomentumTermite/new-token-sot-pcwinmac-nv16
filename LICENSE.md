@@ -1,4 +1,4 @@
-# 
+# Turbo new token sniper bot scripts para Mac OS | Personalizado new token sniper bot scripts para PC Windows. Com painéis personalizados e estimativa de taxas de gás — otimizado para máximo desempeño en cada plataforma.
 
 
 
